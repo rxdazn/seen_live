@@ -275,7 +275,7 @@ A list of artists I've seen
 * Truss (DJ Set)  
 * Roman Poncet (DJ Set)  
 * Blawan (DJ Set)  
-* Pangeaa (DJ Set)  
+* Pangaea (DJ Set)  
 * Stanislav Tolkachev (DJ Set/Live Hybrid)  
 * Cassegrain + Tin Man (Live)  
 * James Dean Brown (DJ Set)  
